@@ -15,3 +15,5 @@ Smoke Kills Book Two
 https://write.as/untouchable/shuang-bi-smoke-kills-fxw2
 Smoke Kills Book Three
 https://write.as/untouchable/shuang-bi-smoke-kills-ssp0
+Mist Book Two
+https://write.as/untouchable/feng-jiu-mist
