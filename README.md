@@ -17,3 +17,5 @@ Smoke Kills Book Three
 https://write.as/untouchable/shuang-bi-smoke-kills-ssp0
 Mist Book Two
 https://write.as/untouchable/feng-jiu-mist
+2049 番外一
+https://write.as/untouchable/2049-fan-wai
