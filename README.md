@@ -19,3 +19,5 @@ Mist Book Two
 https://write.as/untouchable/feng-jiu-mist
 2049 番外一
 https://write.as/untouchable/2049-fan-wai
+小男友二三事记事簿 04
+https://write.as/untouchable/shuang-bi-fan-wai
