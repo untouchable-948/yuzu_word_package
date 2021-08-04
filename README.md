@@ -21,3 +21,5 @@ https://write.as/untouchable/feng-jiu-mist
 https://write.as/untouchable/2049-fan-wai
 小男友二三事记事簿 04
 https://write.as/untouchable/shuang-bi-fan-wai
+【双璧】Le bleu est une couleur chaude
+https://write.as/untouchable/shuang-bi-le-bleu-est-une-couleur-chaude
