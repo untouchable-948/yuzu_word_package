@@ -25,3 +25,15 @@ https://write.as/untouchable/shuang-bi-fan-wai
 https://write.as/untouchable/shuang-bi-le-bleu-est-une-couleur-chaude
 【双璧】A Thousand Years of Good Prayers_Credit Scene 
 https://write.as/untouchable/credit-scene-a-thousand-years
+【双璧】初智齿
+https://write.as/untouchable/shuang-bi-chu-zhi-chi
+【双璧】异地恋(中) 
+https://write.as/untouchable/shuang-bi-yi-di-lian-zhong
+【双璧】异地恋(下)完整版
+https://write.as/untouchable/shuang-bi-yi-di-lian-xia-wan-zheng-ban
+【双璧】Will you be my valentine(上) 完整版
+https://write.as/untouchable/shuang-bi-will-you-be-my-valentine-shang-wan-zheng-ban
+【双璧】Will you be my valentine_Bonus Track 
+https://write.as/untouchable/shuang-bi-will-you-be-my-valentine_bonus-track
+【双璧】Trick or Treat Scene3 
+https://write.as/untouchable/shuang-bi-trick-or-treat-scene-3
