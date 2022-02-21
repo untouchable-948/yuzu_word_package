@@ -23,3 +23,5 @@ https://write.as/untouchable/2049-fan-wai
 https://write.as/untouchable/shuang-bi-fan-wai
 【双璧】Le bleu est une couleur chaude
 https://write.as/untouchable/shuang-bi-le-bleu-est-une-couleur-chaude
+【双璧】A Thousand Years of Good Prayers_Credit Scene 
+https://write.as/untouchable/credit-scene-a-thousand-years
