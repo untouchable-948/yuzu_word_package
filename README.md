@@ -37,3 +37,5 @@ https://writeas.xyz/untouchable/shuang-bi-will-you-be-my-valentine-shang-wan-zhe
 https://writeas.xyz/untouchable/shuang-bi-will-you-be-my-valentine_bonus-track
 【双璧】Trick or Treat Scene3 
 https://writeas.xyz/untouchable/shuang-bi-trick-or-treat-scene-3
+【双璧】Disturbance 03
+https://writeas.xyz/untouchable/shuang-bi-disturbance
